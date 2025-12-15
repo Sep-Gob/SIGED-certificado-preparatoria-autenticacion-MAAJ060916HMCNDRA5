@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-MAAJ060916HMCNDRA5
+MAAJ060916HMCNDRA5
